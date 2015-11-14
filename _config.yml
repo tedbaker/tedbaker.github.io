@@ -2,5 +2,5 @@ excerpt_separator: ""
 pygments: true
 markdown: kramdown
 url: http://tedbaker.github.io
-title: tedbaker
-paginate: 5
+title: Ted Baker
+paginate: 10
