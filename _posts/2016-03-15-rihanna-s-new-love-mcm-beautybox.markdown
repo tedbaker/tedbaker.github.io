@@ -1,0 +1,6 @@
+---
+published: true
+title: Rihanna\'s new love MCM BeautyBox
+layout: post
+---
+Spring and summer of 2016, MCM embedding the inspiration classic suitcase mini handbag design, to create a new cosmetic case mini handbags, selection of shiny metal zipper top cover opening and closing, with his small but substantial capacity.![Alt Rihanna\'s new love MCM BeautyBox](https://c2.staticflickr.com/2/1611/25177478213_a30cce3627_z.jpg)MCM Heritage series of classical inheritance to Cognac Visetos material to create timeless styles of travel series, for the fashionable urban Nomad presents practical and ingenious accessories.![Alt Rihanna\'s new love MCM BeautyBox](https://c2.staticflickr.com/2/1609/25778029886_5f8a245f99_z.jpg)![Alt Rihanna\'s new love MCM BeautyBox](https://c2.staticflickr.com/2/1662/25503444560_024c643148_b.jpg)![Alt Rihanna\'s new love MCM BeautyBox](https://c2.staticflickr.com/2/1691/25173663144_953d5da694_b.jpg)Rihanna MCM spring/summer new classic travel bag suitcase metal [Stella McCartney spring summer 2016 series features](http://www.faybag.com/2016/02/24/stella-mccartney-spring-summer-2016-series-features-short-films/) [Stella McCartney spring summer 2016 series features](http://www.faybag.com/2016/02/24/stella-mccartney-spring-summer-2016-series-features-short-films/)
