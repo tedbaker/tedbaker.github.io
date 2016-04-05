@@ -1,0 +1,6 @@
+---
+published: true
+title: Mulberry Creative Director released the first Capsule series
+layout: post
+---
+Mulberry Creative Director Johnny Coca released the first Capsule series. First launched in series equipped with new iconic metal studs.\r Inspired by the army and the United Kingdom punk rock culture. Clifton handbags in the Capsule series is a simple Messenger bag, under the simple appearance, cleverly concealed an important design allows the wearer to systematically place their belongings.\r Clifton handbag has three zippered inside pocket, provided sufficient space; the chain with a Crossbody and shoulder, styles change.\r Johnny Coca has also reinterpreted for Mulberry shoes, including Marylebone Capsule series and Mary-Jane high heels short boots.\r Mulberry introduced by Coco Capitan in London on a fall of 2016 advertising blockbusters, including capsule series part works. [COACH spring summer 2016 series Dinky handbags](http://dolcegabbana.bravesites.com/entries/general/coach-spring-summer-2016-series-dinky-handbags) [COACH spring summer 2016 series Dinky handbags](http://dolcegabbana.bravesites.com/entries/general/coach-spring-summer-2016-series-dinky-handbags)Series capsulemulberry, Creative Director
